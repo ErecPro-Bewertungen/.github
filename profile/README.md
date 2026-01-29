@@ -129,7 +129,6 @@ Viele Nutzer empfehlen, direkt nach einem **ErecPro Angebot** auf der offizielle
 
 **ErecPro Kaufen** sollte man ausschließlich über die **ErecPro Offizielle Website**:
 
-👉 [**https://erec-prime.site/**](https://erec-prime.site/)
 
 Warum?
 
